@@ -1,3 +1,3 @@
 ## KARMA 
-You have to face consequences of your past .
+You have to face consequences of your Actions.
 
